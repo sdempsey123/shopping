@@ -21,6 +21,7 @@ With the price of oil going through the roof, this is one of the bigger challeng
 This is one of the more challenging areas of your budget, but there are a lot of stores out there that carry quality merchandies at low prices, such as Kohl's, Ross, and Marshall's. You can go online as well, but beware that the sizes you find online may not match the sizes that fit you.
 
 ## Recreation
+![golf2](https://user-images.githubusercontent.com/75657565/144541876-00fb3425-6722-467f-8ab7-1da63466d173.JPG)
 
 
 Of course, you need to get some exercise or go out and have some fun, but the prices can be pretty steep. You need to ask yourself if that $1,500 exercise machine or an expensive gym is really worth it. Ditto for paying to play golf where equpiment can go into the thousands. Get used clubs and maybe some weights to do workouts from home. 
