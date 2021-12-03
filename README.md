@@ -22,3 +22,5 @@ This is one of the more challenging areas of your budget, but there are a lot of
 
 ## Recreation
 
+
+Of course, you need to get some exercise or go out and have some fun, but the prices can be pretty steep. You need to ask yourself if that $1,500 exercise machine or an expensive gym is really worth it. Ditto for paying to play golf where equpiment can go into the thousands. Get used clubs and maybe some weights to do workouts from home. 
