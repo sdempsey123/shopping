@@ -16,4 +16,9 @@ This is the most important item on anyone's shopping list since users have to ge
 With the price of oil going through the roof, this is one of the bigger challenges to anyone's personal budget. The key is to find the best price possible for gas, which means users can go to stations like Rotten Robbie or other independent outlets. The same applies to oil changes. Go online and you should find some good deals. 
 
 ## Clothes
+![clothes](https://user-images.githubusercontent.com/75657565/144540600-cc5906f6-5f24-4261-b25e-8841533ef3d9.jpg)
+
+This is one of the more challenging areas of your budget, but there are a lot of stores out there that carry quality merchandies at low prices, such as Kohl's, Ross, and Marshall's. You can go online as well, but beware that the sizes you find online may not match the sizes that fit you.
+
+## Recreation
 
